@@ -1,2 +1,2 @@
 # AKM
-Working In Sales @ Tally
+Working In Tally Software, Passionate about Coding
